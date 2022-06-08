@@ -15,6 +15,7 @@ Hey, I'm Samantha an italian Java developer
 ![https://cdn-icons-png.flaticon.com/24/5968/5968292.png](https://cdn-icons-png.flaticon.com/24/5968/5968292.png)
 ![https://cdn-icons-png.flaticon.com/24/1265/1265531.png](https://cdn-icons-png.flaticon.com/24/1265/1265531.png)
 ![https://cdn-icons-png.flaticon.com/24/5968/5968282.png](https://cdn-icons-png.flaticon.com/24/5968/5968282.png)
+![https://cdn-icons-png.flaticon.com/24/5968/5968672.png](https://cdn-icons-png.flaticon.com/24/5968/5968672.png)
 
 
 
